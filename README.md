@@ -1,4 +1,4 @@
-## Hi, I'm <a href="https://www.yuyunlong.cn/" target="_blank">Yu Yunlong (Kelvin)</a> ! 👋
+## Hi, I'm <a href="https://www.yuyunlong.cn/" target="_blank">Yunlong Yu (Lucas)</a> ! 👋
 
  <em><b>I'm an internet worker, nice to meet you ! </b> </em> 👋
 

@@ -1,4 +1,4 @@
-## Hi, I'm <a href="https://linktr.ee/yuyunlong/" target="_blank">Yunlong Yu (Lucas)</a> ! 👋
+## Hi, I'm <a href="https://linktr.ee/yuyunlong/" target="_blank">Yunlong Yu</a> ! 👋
 
  <em><b>I'm an internet worker, nice to meet you ! </b> </em> 👋
 
